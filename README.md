@@ -13,9 +13,6 @@
 
 - 📫 How to reach me **EslamEsmael012@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/0BygfY8qTJnrbUXpYTk9QZ3QtcjA/view?resourcekey=0-vW-1RjAf6y2z3RUgigV79Q](https://drive.google.com/file/d/1DuFH7QUae2lRo6Y66xRSpUhSPwYtCQFL/view?usp=sharing)
-
-- ⚡ Fun fact **I play video games (League specifically)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
